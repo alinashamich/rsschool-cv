@@ -8,7 +8,7 @@ Education
 ---------
 
 2013-2017 
-:   BSU,  Faculty fo international relatioships 
+:   BSU,  Faculty of international relatioships 
 
 Experience
 ----------
