@@ -23,7 +23,7 @@ Tech Skills
 * CSS (Basic)
 * Java Script (Basic)
 
-ENGLISH: B2
+ENGLISH: C1
 
 Summary
 -------
